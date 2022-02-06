@@ -1,1 +1,1 @@
-Feel free to submit
+Feel free to contribute
